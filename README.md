@@ -24,6 +24,8 @@
 
 
 **Минусы отношений СССР и Китая в 1989 году**
+
+
 ![image](https://github.com/user-attachments/assets/8b3cb989-859a-4274-9947-e484f66a5d67)
 
 
